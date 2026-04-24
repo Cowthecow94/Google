@@ -6,7 +6,9 @@ https://YouTube.com
 https://reddit.com
 https://discord.com
 Recommended by people:
+https://youraislopbores.me
 https://humanornot.io
+https://humanornot.se
 https://console.firebase.google.com/
 https://aistudio.google.com/
 https://Gemini.google.com
