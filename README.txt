@@ -14,3 +14,4 @@ https://console.firebase.google.com/
 https://aistudio.google.com/
 https://Gemini.google.com
 https://c.ai
+https://amongus-online.net/game/amongus
