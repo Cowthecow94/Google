@@ -16,3 +16,4 @@ https://Gemini.google.com
 https://c.ai
 https://amongus-online.net/game/amongus
 https://lightshade.cloud
+https://scratch.mit.edu
