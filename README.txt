@@ -8,7 +8,7 @@ https://gmail.com
 Recommended by people:
 https://youraislopbores.me
 https://humanornot.io
-https://humanornot.se
+https://humanornot.so
 https://discord.com
 https://console.firebase.google.com/
 https://aistudio.google.com/
