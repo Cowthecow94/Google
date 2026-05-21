@@ -5,6 +5,7 @@ Other things (if you're lazy to use google. Request more in the issues section i
 https://YouTube.com
 https://reddit.com
 https://gmail.com
+https://crazygames.com
 Recommended by people:
 https://youraislopbores.me
 https://humanornot.io
