@@ -18,3 +18,4 @@ https://c.ai
 https://amongus-online.net/game/amongus
 https://lightshade.cloud
 https://scratch.mit.edu
+https://ual.beltfrog.com
